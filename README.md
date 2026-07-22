@@ -2,7 +2,7 @@
 
 A startup engineering premium, customized phone frames from deconstructed legacy tech.
 
-###Fluid Frames are not just wall decor; they are tangible portals to your personal history and digital nostalgia.
+Fluid Frames are not just wall decor; they are tangible portals to your personal history and digital nostalgia.
 They capture the fleeting essence of the tech that shaped your life, freezing moments of innovation into permanent, striking art pieces. 
 By deconstructing the devices that once held your memories, secrets, and daily connections, these frames honor the emotional weight of your digital journey.
 
